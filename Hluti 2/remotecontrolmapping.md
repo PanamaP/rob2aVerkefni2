@@ -1,0 +1,1 @@
+1. Btn8R = Stop
